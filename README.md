@@ -6,7 +6,7 @@ I have a knack for spurring self-discovery and increasing self-efficacy in other
 Also it makes me very happy to see other people discover their potential.
 Been coaching for 10+ years now (yes, I started at age 20...).
 
-## I'm a model thinker 🗺️
+## I'm a system thinker 🗺️
 
 My brain works in simple models of complex situations.
 I like sketching, Lego Serious Play and management accounting to help me see the patterns in systems.
